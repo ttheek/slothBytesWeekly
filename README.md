@@ -1,0 +1,3 @@
+[![Sloth Bytes](https://media.beehiiv.com/cdn-cgi/image/fit=scale-down,format=auto,onerror=redirect,quality=80/uploads/asset/file/64cb77a5-fc96-4366-a66b-417b7b67b953/sloth_bytes_title_with_bg.png?t=1713836853 "Sloth Bytes")](https://slothbytes.beehiiv.com/)
+
+![Weekly Challenge](https://media.beehiiv.com/uploads/asset/file/995d039a-9afa-4f7f-8ab2-5a2ef8f1832a/Sloth_Bytes_Challenge__1_.gif?t=1718050083 "Weekly Challenge")
